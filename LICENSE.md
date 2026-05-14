@@ -1,4 +1,4 @@
-#  
+#  Experience blox fruits like never before with stealth blox fruits Script, the #1 Script. Includes anti-ban and auto-sell for unbeatable performance.
 
 
 
